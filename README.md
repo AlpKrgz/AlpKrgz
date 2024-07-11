@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlpKrgz
+- 👀 I’m interested in chess, football, coding.
+- 🌱 I’m currently learning coding.
+- 💞️ I’m looking to collaborate on Alpinyo.
+- 📫 You can reach me via the email in my profile.
